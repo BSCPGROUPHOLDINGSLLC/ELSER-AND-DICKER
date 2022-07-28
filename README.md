@@ -4,6 +4,20 @@
 test this here. [^1]
 ![image](https://user-images.githubusercontent.com/70865813/169647568-ac8dec51-531a-4617-be0e-8761b9743b7d.png)
 
+---
+
+https://github.com/BSCPGROUPHOLDINGSLLC/2021-DUCKER-ZUCKER/find/main
+
+-------- Forwarded Message --------
+Subject: 	If you believe that DOJ maintains the records you are seeking, but you are uncertain about which component has the records
+Date: 	Thu, 28 Jul 2022 18:19:40 -0500
+From: 	B D2022 <ms60710444266@yahoo.com>
+To: 	notifications@maxient.com, notification@maxient.com
+CC: 	MRUFOIA.Requests@usdoj.gov <MRUFOIA.Requests@usdoj.gov>
+
+
+If you believe that DOJ maintains the records you are seeking, but you are uncertain about which component has the records, you may send your request to:  FOIA/PA Mail Referral Unit, Justice Management Division, Room 115, LOC Building, Washington, D.C. 20530-0001, Attention:  FOIA Request.  You may also send your request to the Mail Referral Unit via e-mail (MRUFOIA.Requests@usdoj.gov) or fax ((202) 616-6695).  Personnel in that division will then forward your request to the DOJ component(s) it determines are most likely to maintain the records you are seeking. 
+
 
 ---
 >					
